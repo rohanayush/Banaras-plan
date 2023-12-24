@@ -1,7 +1,7 @@
 **Day 1: Morning - Exploring Ghats and Temples**
 
 *7:00 AM - 8:30 AM: Morning Boat Ride on the Ganges*
-   - Location: Dashashwamedh Ghat 
+   - Location: Dashashwamedh Ghat [📌Directions](https://maps.app.goo.gl/EcpNBVZjBMXVZnXG7)
    - Enjoy a serene boat ride on the Ganges, starting at Dashashwamedh Ghat to witness the morning rituals.
 
 *9:00 AM - 10:30 AM: Visit Kashi Vishwanath Temple*
